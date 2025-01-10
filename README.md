@@ -1,2 +1,1 @@
 - 👋 Hi, I’m Purus Thong.
-- 👀 I’m interested in Viet Nam.
